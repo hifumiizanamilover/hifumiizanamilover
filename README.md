@@ -1,7 +1,7 @@
 ## HELLO!!! im edgar/kami !!
-my pronouns are **xe/it** and i am a minor :)
+my pronouns are **xe/it** , minor, wasian !!!
 
-💌 married to @izumisenalover (/≧▽≦)/💞
+💌 married to @izumisenalover (/≧▽≦)/💞 (my enemy)
 
 | interests    |
 | ----------- | 
