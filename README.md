@@ -4,6 +4,9 @@ my pronouns are **xe/it** , minor, wasian !!!                      <sup> pfp by 
 💌 married to @izumisenalover (/≧▽≦)/💞 (my enemy)
 
 
+
+
+
 🐋 i love pasupare and hifumi soso much i am so normal thumbsup
 
 | interests    | ... |
