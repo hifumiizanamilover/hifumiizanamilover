@@ -11,7 +11,7 @@ my pronouns are **xe/it** , minor, wasian !!!                      <sup> pfp by 
 
 | interests    | ... |
 | ----------- | ----------- | 
-| hypmic, vkei, idv, bandori, kpop and witches heart!! theres more...   | feel free to sit next to me/talk to me whatev! usually afk so whisper me if you need something!! read rentry for xtra info|
+| hypmic, vkei, idv, bandori, kpop and witches heart!! theres more...   | feel free to sit next to me/talk to me whatev! usually afk so whisper me if you need something!! read rentry for xtra info. i hide freely, sorry :(|
 
 **dni extremly white ponies... like color of the snow... you scare me!! (looking at u genshin ponies. give them some color!!!!!!!!!)**
 
