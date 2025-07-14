@@ -1,7 +1,7 @@
 ## HELLO!!! im edgar/kami !!
 my pronouns are **xe/it** , minor, wasian !!!                      <sup> pfp by EroMmk <sup/>
 
-💌 married to @izumisenalover (/≧▽≦)/💞 (my enemy)
+💌 married to @desertdduo (/≧▽≦)/💞 (my enemy)
 
 
 
