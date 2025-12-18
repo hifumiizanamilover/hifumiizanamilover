@@ -1,17 +1,17 @@
 ## HELLO!!! im edgar/kami !!
 my pronouns are **xe/it** , minor, wasian !!!                      <sup> pfp by EroMmk <sup/>
 
-💌 married to @desertdduo (/≧▽≦)/💞 (my enemy)
+💌 married to @izuleoyuri (/≧▽≦)/💞 (my enemy)
 
 
 
 
 
-🐋 i love pasupare and hifumi soso much i am so normal thumbsup
+🐋 i love fob and hifumi soso much i am so normal thumbsup
 
 | interests    | ... |
 | ----------- | ----------- | 
-| hypmic, vkei, idv, bandori, kpop and witches heart!! theres more...   | feel free to sit next to me/talk to me whatev! usually afk so whisper me if you need something!! read rentry for xtra info. i hide freely, sorry :(|
+| fob, drag race, hypmic, vkei, idv, bandori, kpop and witches heart!! theres more...   | feel free to sit next to me/talk to me whatev! usually afk so whisper me if you need something!! read rentry for xtra info. i hide freely, sorry :(|
 
 **dni extremly white ponies... like color of the snow... you scare me!! (looking at u genshin ponies. give them some color!!!!!!!!!)**
 
