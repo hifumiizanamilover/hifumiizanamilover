@@ -1,5 +1,5 @@
 ## HELLO!!! im edgar/kami !!
-my pronouns are **xe/it** , minor, wasian !!!                      <sup> pfp by EroMmk <sup/>
+my pronouns are **xe/it** , 19, wasian !!!                      <sup> pfp by EroMmk <sup/>
 
 💌 married to @izuleoyuri (/≧▽≦)/💞 (my enemy)
 
